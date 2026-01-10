@@ -8,4 +8,4 @@
 
 🌱 Join us as we grow and shape the future of decentralized fund allocation!
 
-[Website](https://xylkit.com) | [Twitter](https://twitter.com/xylkit)
+[Website](https://xylkit.xyz) | [Twitter](https://twitter.com/xylkit)
